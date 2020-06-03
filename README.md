@@ -11,7 +11,7 @@ Men get paid more than women in every category;
 Men overwhelmingly work in blue collar and labor intensive jobs (construction) as well as science;
 Women overwhelmingly work in business, community service, healthcare, sales and office, and service;
 Over the years, the percentage of women in business is decreasing, and the percent in service industries is increasing;
-Companies with more equal wage distributions between men and women tend to have more female employees
+Companies with more equal wage distributions between men and women tend to have more female employees.
 
 BUSINESS REALITY:
 We want to educate people on the prevalence of the disparity of wages between males and females. This information can increase corporate awareness about the difference in wages, as well as educate people in their everyday lives. Overall, we see that the number of women in a company and the amount that they earn (in ratio form) are interrelated. We want companies to view our insights to consider how the representation of genders may affect the difference in earnings and vice versa. We also hope our insights can make companies aware of the lack of representation of one gender or the other in certain professions.
